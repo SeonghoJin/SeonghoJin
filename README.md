@@ -1,19 +1,3 @@
 [![Solved.ac 프로필](http://mazassumnida.wtf/api/generate_badge?boj=seonh4996)](https://solved.ac/seonh4996)
 <br/>
 [be-ready-next](https://be-ready-next.com/)
-<br/>
-[be-ready-next](https://be-ready-next.com/)
-<br/>
-[be-ready-next](https://be-ready-next.com/)
-<br/>
-[be-ready-next](https://be-ready-next.com/)
-<br/>
-[be-ready-next](https://be-ready-next.com/)
-<br/>
-[be-ready-next](https://be-ready-next.com/)
-<br/>
-[be-ready-next](https://be-ready-next.com/)
-<br/>
-[파카](https://www.youtube.com/channel/UCJpAwvQaZyCI5spAz7tipGA)
-<br/>
-[슈카](https://www.youtube.com/results?search_query=%EC%8A%88%EC%B9%B4)
